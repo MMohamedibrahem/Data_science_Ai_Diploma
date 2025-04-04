@@ -1,1 +1,1 @@
-# Ai-Course-
+Data science and Ai diploma assignments and Searches 
